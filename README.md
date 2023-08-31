@@ -1,1 +1,1 @@
-# tekitou-saku-matsumoto-namaemotekitoudaze
+# tekitou-saku
